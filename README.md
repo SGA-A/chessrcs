@@ -1,2 +1,2 @@
 # repo
-I'll upload the files later when i get the chance.
+I'll upload the files later when I get the chance.
